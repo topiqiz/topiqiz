@@ -13,3 +13,4 @@
   <sub>♤ https://topiqiz.atabook.org</sub>
 </div>
 
+*Cae, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're **simply a living being,** please **don't** refer to it as a **human** or **person**.*
