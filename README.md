@@ -3,14 +3,14 @@
 </div>
 
 <div align="center">
-  <sub>ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》S3V3N</sub>
-</div>
-
+  ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》S3V3N </div>
+  
 <div align="center">
-  <sub>♡ https://topiqiz.straw.page</sub>
-</div>
+  <sub>♡ https://topiqiz.straw.page</sub> </div>
+  
 <div align="center">
-  <sub>♤ https://topiqiz.atabook.org</sub>
-</div>
+  <sub>♤ https://topiqiz.atabook.org</sub> </div>
+  
+<br/>
 
-*Cae, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're **simply a living being,** please **don't** refer to it as a **human** or **person**.*
+  <sub> *Lux, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're **simply a living being,** please **don't** refer to it as a **human** or **person**.* </sub>
