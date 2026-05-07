@@ -13,4 +13,4 @@
   
 <br/>
 
-  <sub> *Lux, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're **simply a living being,** please **don't** refer to it as a **human** or **person**.* </sub>
+  <sub> *Lux, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're <ins>**simply a living being,**</ins> please <ins>**don't**</ins> refer to it as a <ins>**human**</ins> or <ins>**person**</ins>.* </sub>
