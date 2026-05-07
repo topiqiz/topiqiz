@@ -14,3 +14,8 @@
 <br/>
 
   <sub> *Lux, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're <ins>**simply a living being,**</ins> please <ins>**don't**</ins> refer to it as a <ins>**human**</ins> or <ins>**person**</ins>.* </sub>
+<p align="right">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31mgerixwbit37c4aqefj4sk4omq&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mgerixwbit37c4aqefj4sk4omq&cover_image=true&theme=spotify-embed&show_offline=true&background_color=6aa300&interchange=false&profanity=false&mode=dark&bar_color=00ff00&bar_color_cover=false">
+  </a>
+</p>
