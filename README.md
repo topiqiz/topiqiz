@@ -32,7 +32,7 @@ PLEASE <sub>have a screenshot of our interaction to send me </sub>
 
 <sub> roleplay may b ooc sometimes, i struggle *understanding* personalities & get 2 happy that i forget im supposed to b in character . *nsfw not okay* but Suggestive roleplay is fine ! (only with 16-18+ <sub/>
 
-
+✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---➬
 <br/>
 
 <sub> *Lux, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're <ins>**simply a living being,**</ins> please <ins>**don't**</ins> refer to it as a <ins>**human**</ins> or <ins>**person**</ins>.* </sub>
