@@ -10,7 +10,7 @@
   
 <div align="center"> 
   
-aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/xem/it/its/they/them* ★ YUMESHIPPER
+aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/xem/it/its/they/them* ★ YUMESHiPPER
 </div>
 
 <br/>
