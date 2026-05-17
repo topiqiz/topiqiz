@@ -3,11 +3,11 @@
 </div>
 
 <div align="center">
-  ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》S3V3N </div>
+  🎲 T☹PiQiZ 》CaE/LUX 》HERLUX 》V☻iD 》ELPHERNaL 》PH☹SPH☻RUS 》S3V3N 🎊 </div>
   
 <div align="center"> 
   
-aroacespec ☆ 1*7* y.o. xenogender ★ *xe/xem/it/its/they/them* ☆ ARTiST
+aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/xem/it/its/they/them* ★ ARTiST
 </div>
 
 <br/>
@@ -24,18 +24,20 @@ aroacespec ☆ 1*7* y.o. xenogender ★ *xe/xem/it/its/they/them* ☆ ARTiST
   <div align="center">
 <sub>i accept all requests </sub>
   <div align="center">
+<sub>i have a social battery</sub>
+  <div align="center">
 PLEASE <sub>have a screenshot of our interaction to send me </sub>
   
 <br/>
 <br/>
 <br/>
 
-<sub> roleplay may b ooc sometimes, i struggle *understanding* personalities & get 2 happy that i forget im supposed to b in character . *nsfw not okay* but Suggestive roleplay is fine ! (only with 16-18+ <sub/>
+<sub> ⫸ roleplay may b ooc sometimes, i struggle *understanding* personalities & get 2 happy that i forget im supposed to b in character . *nsfw not okay* but Suggestive roleplay is fine ! (only with 16-18+ <sub/>
 
-✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---➬
+✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁---✃---✁-----➬
 <br/>
 
-<sub> *Lux, since its early childhood, has felt out of place from voi's body - making xem research & come to the conclusion they're <ins>**simply a living being,**</ins> please <ins>**don't**</ins> refer to it as a <ins>**human**</ins> or <ins>**person**</ins>.* </sub>
+<sub> ❝ *Lux, since its early childhood, has felt out of place from its body - making xem research & come to the conclusion they're <ins>**simply a living being,**</ins> please <ins>**don't**</ins> refer to it as a <ins>**human**</ins> or <ins>**person**</ins>.* ❞ </sub>
 
 <br/>
 
