@@ -1,4 +1,7 @@
 <div align="center">
+  <sub><sup>『 So before life tears us apart, let death bless me with you. 』</div>
+    
+  <div align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=B1F744&center=true&vCenter=true&width=435&lines=WoN'T+YoU+DiE+ToNiGHT+FoR+LoVE+%3F;BaBY+JoiN+ME+iN+DEaTH+%3C3;So+WoN'T+YoU+DiE+~+%3F;BaBY+JoiN+ME+iN+DEaTH+%3C%2F3" alt="Typing SVG" /></a>
 </div>
 
@@ -11,12 +14,6 @@ aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/xem/it/its/they/them* ★ ARTiST
 </div>
 
 <br/>
-  
-<div align="center">
-  <sub>♡ https://topiqiz.straw.page</sub> </div>
-  
-<div align="center">
-  <sub>♤ https://topiqiz.atabook.org</sub> </div>
 
 <div align="center">
 <sub>DISCORD ; cl0wnerism </sub>
