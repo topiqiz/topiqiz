@@ -8,14 +8,6 @@
 <div align="center">
 <img src="https://img.sanishtech.com/u/d6b517346c99e9b380bb78d45983e963.png" alt="Untitled37_20260522100107" width="759" height="215" loading="lazy" style="max-width:100;height:auto;"> </div>
 
-<div align="center">
-  txt: ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》SEVEN 🎊 KoRo BY FaMiLY oNLY </div>
-  
-<div align="center"> 
-  
-aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/it/voi* they/them ok ! ★ YUMESHiPPER
-</div>
-
 <br/>
 
 <div align="center">
@@ -47,6 +39,13 @@ PLEASE <sub>have a screenshot of our interaction to send me </sub>
   </a>
 </p>
 
+<div align="left">
+  txt: ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》SEVEN 🎊 KoRo BY FaMiLY oNLY </div>
+  
+<div align="left"> 
+  
+aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/it/voi* they/them ok ! ★ YUMESHiPPER
+</div>
 <br/>
 <br/>
 <br/>
