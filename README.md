@@ -6,11 +6,14 @@
 </div>
 
 <div align="center">
-  🎲 T☹PiQiZ 》CaE/LUX 》HERLUX 》V☻iD 》ELPHERNaL 》PH☹SPH☻RUS 》S3V3N 🎊 </div>
+<img src="https://img.sanishtech.com/u/d6b517346c99e9b380bb78d45983e963.png" alt="Untitled37_20260522100107" width="759" height="215" loading="lazy" style="max-width:100;height:auto;"> </div>
+
+<div align="center">
+  txt: ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》SEVEN 🎊 KoRo BY FaMiLY oNLY </div>
   
 <div align="center"> 
   
-aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/xem/it/its/they/them* ★ YUMESHiPPER
+aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/it/voi* they/them ok ! ★ YUMESHiPPER
 </div>
 
 <br/>
