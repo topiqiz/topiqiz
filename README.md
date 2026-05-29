@@ -1,5 +1,5 @@
 <div align="center">
-  <sub><sup>『 So before life tears us apart, let death bless me with you. 』</div>
+  <a href="https://picasion.com/gl/lR5N/"><img src="https://i.picasion.com/gl/93/lR5N.gif" width="802" height="38" border="0" alt="glitter maker" /></a><br /><a href="https://picasion.com/gl/lR5N/"></a></div>
     
   <div align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=B1F744&center=true&vCenter=true&width=435&lines=WoN'T+YoU+DiE+ToNiGHT+FoR+LoVE+%3F;BaBY+JoiN+ME+iN+DEaTH+%3C3;So+WoN'T+YoU+DiE+~+%3F;BaBY+JoiN+ME+iN+DEaTH+%3C%2F3" alt="Typing SVG" /></a>
