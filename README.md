@@ -6,9 +6,14 @@
 </div>
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/d6b517346c99e9b380bb78d45983e963.png" alt="Untitled37_20260522100107" width="759" height="215" loading="lazy" style="max-width:100;height:auto;"> </div>
+<a href="https://picasion.com/gl/lR5w/"><img src="https://i.picasion.com/gl/93/lR5w.gif" width="66" height="33" border="0" alt="https://picasion.com/gl/lR5w/" /></a><br /><a href="https://picasion.com/gl/lR5w/"></a>
 
 <br/>
+
+<div align="center">
+<img src="https://img.sanishtech.com/u/d6b517346c99e9b380bb78d45983e963.png" alt="Untitled37_20260522100107" width="759" height="215" loading="lazy" style="max-width:100;height:auto;"> </div>
+
+  <br/>
 
 <div align="center">
 <sub>DISCORD ; cl0wnerism </sub>
