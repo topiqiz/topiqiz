@@ -19,7 +19,7 @@
   <br/>
 
 <div align="center">
-<sub>DISCORD ; cl0wnerism </sub>
+<sub>DISCORD ; topiqiz </sub>
 
   <div align="center">
 <sub>i accept all requests </sub>
