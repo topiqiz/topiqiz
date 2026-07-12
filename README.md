@@ -11,7 +11,10 @@
 <br/>
 
 <div align="center">
-<img src="https://img.sanishtech.com/u/d6b517346c99e9b380bb78d45983e963.png" alt="Untitled37_20260522100107" width="759" height="215" loading="lazy" style="max-width:100;height:auto;"> </div>
+  ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》SEVEN 🎊
+  
+  aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/it/voi* they/them ok ! ★ YUMESHiPPER </div>
+<br/>
 
   <br/>
 
