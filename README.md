@@ -47,12 +47,6 @@ PLEASE <sub>have a screenshot of our interaction to send me </sub>
   </a>
 </p>
 
-<div align="left">
-  txt: ToPiQiZ 》CaE/LUX 》HERLUX 》VoiD 》ELPHERNaL 》PHoSPHoRUS 》SEVEN 🎊 KoRo BY FaMiLY oNLY </div>
-  
-<div align="left"> 
-  
-aroacespec ☆ 1*7* y.o. xenogender ✮ *xe/it/voi* they/them ok ! ★ YUMESHiPPER
 </div>
 <br/>
 <br/>
